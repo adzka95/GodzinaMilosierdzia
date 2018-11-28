@@ -32,3 +32,5 @@ Dzięki temu ekranowi w łatwy sposób możesz przypomnieć sobie w jaki sposób
 
 ## Kontakt
 W razie pytań, wątpliwości bądź uwag skontaktuj się z nami.
+
+Adres e-mail: **santes777@icloud.com**
